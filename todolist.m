@@ -4,15 +4,15 @@
 - **Company Name:** HOME BTP
 - **Directory:** home_btp
 - **Address/Contact:** 
-  - SOCI�T� DE CONSTRUCTION, IMMOBILI�RE, VENTES D'AGREGATS, LOCATION+TRANSPORT d'engins lourds.
-  - ??? Exer�ante partout au Cameroun ????
+  - SOCIéTé DE CONSTRUCTION, IMMOBILIéRE, VENTES D'AGREGATS, LOCATION+TRANSPORT d'engins lourds.
+  - ??? Exeréante partout au Cameroun ????
   - 
-  - ?? Besoin d�un devis ou d�une r�servation ?
+  - ?? Besoin déun devis ou déune réservation ?
   - 
   - ?? + 237 690859495
   - ?? homebtp23@gmail.com
   - 
-  - Page � Entreprise de construction
+  - Page é Entreprise de construction
   - 
   - rue des palmiers BONAPRISO (Bonadouma Home), Douala, Cameroon
   - 
